@@ -1,6 +1,9 @@
 poster yang baik :
 
-![alt text](image.png)
+![picture 2](https://i.imgur.com/lXw0Qco.png)  
+
+
+
 Poster diatas menunjukkan informasi mengenai dukungan insfrastruktur dengan air minum dan sanitasi layak untuk menanggulangi stunting di Indonesia. 
 
 •	Pada prinsip pertama yaitu strive for form & function (ilustrasi beserta fungsi harus sejalan),Dimana ilustrasi diatas menunjukkan pengelolaan atau insfrastruktur yang bisa digunakan Masyarakat berpenghasilan rendah yaitu fasilitas sanitasi dan system penyediaan air minum.
